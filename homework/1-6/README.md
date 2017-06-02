@@ -8,6 +8,8 @@
 + David
 + Ian
 + Robin
+
+김수진
 - - -
 
 **6조**
